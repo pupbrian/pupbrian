@@ -6,6 +6,7 @@
     </p>
         <p align="center">
         it he ~~ask 4 neos~~⠀⠀masc ` nh trms
+           join the discord [here](https://discord.gg/FRZkzWSj2S)
     </p>
     <p align="center">
   <p align="center">
