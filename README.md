@@ -17,6 +17,6 @@
 <details>
   <summary>click here ♡</summary>
       <p align="center">
-        i have many attachments, the main ones being brian thomas, tobias rogers, and revivebur. i do not support wilbur soot please do not interact if you do! if you would like my full list ask for my simplyplural. it is where i store everything thx to my sysoomfs for the recommendation
+        i have many attachments, the main ones being brian thomas, tobias rogers, and mike wheeler. if you would like my full list ask for my simplyplural. it is where i store everything thx to my sysoomfs for the recommendation
     </p>
 </details>
